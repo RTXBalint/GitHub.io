@@ -1,0 +1,1 @@
+Ez a hetedik md fájl amti csinálok ebben a feladatban
